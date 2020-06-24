@@ -9,3 +9,5 @@ The Flash (im deutschen Sprachraum früher auch Blitzmann oder Roter Blitz oder 
 
 
 > Niemand sollte für meine Fehler bezahlen müssen. Und das werden sie auch nicht ... nie wieder!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/7/77/Jay_garrick.jpg"/>
