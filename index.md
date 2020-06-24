@@ -6,3 +6,6 @@ The Flash (im deutschen Sprachraum früher auch Blitzmann oder Roter Blitz oder 
 * Speedster
 * Kann mit Blitzen werfen
 * Schnellster Mensch der Welt
+
+
+> Niemand sollte für meine Fehler bezahlen müssen. Und das werden sie auch nicht ... nie wieder!
